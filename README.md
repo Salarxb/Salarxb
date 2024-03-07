@@ -1,12 +1,12 @@
-- 👋 Hi, I’m @Salarxb
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-Salarxb/Salarxb is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Salarxb@
+video
+milke
+carxxx
+frandes
+go
+so
+noob
+wook
+jrab
+post
+fiake
